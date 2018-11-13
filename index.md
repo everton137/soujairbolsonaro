@@ -51,7 +51,25 @@
 ###### [CQC, TV Bandeirantes](https://youtu.be/9T5ZSAO1MVg?t=217)
 <div style="text-align: right; font-size: 10pt">28 de março de 2011</div>
 
+> “É um índio que está a soldo aqui em Brasília, veio de avião, vai agora comer uma costelinha de porco, tomar um chope, 
+> provavelmente um uísque, e quem sabe telefonar para alguém para a noite sua ser mais agradável. Esse é o índio que vem 
+> falar aqui de reserva indígena. Ele devia ir comer um capim ali fora para manter as suas origens.”
 
+###### [Câmara dos Deputados](https://pib.socioambiental.org/pt/Not%C3%ADcias?id=56154)
+<div style="text-align: right; font-size: 10pt">14 de maio de 2008</div>
 
+> “Foram quatro homens, a quinta eu dei uma fraquejada e veio uma mulher.”
+
+> “Se eu chegar lá [Presidência], não vai ter dinheiro pra ONG. Esses inúteis vão ter que trabalhar. Se eu chegar lá, no que depender de mim, todo cidadão vai ter uma arma de fogo dentro de casa. Não vai ter um centímetro demarcado pra reserva indígena ou pra quilombola.”
+
+> “Alguém já viu um japonês pedindo esmola por aí? Porque é uma raça que tem vergonha na cara. Não é igual a essa raça que tá aí embaixo, ou como uma minoria que tá ruminando aqui do lado.”
+
+###### Palestra no clube Hebraica, Rio de Janeiro[1](https://www.youtube.com/watch?v=Cp1GdBx32CM)[2](https://youtu.be/ks0dgE8jpkw?t=23)[3](https://www.youtube.com/watch?v=LPj4KyLw8Wc)
+<div style="text-align: right; font-size: 10pt">3 de abril de 2017</div>
+
+> “Se o filho começa a ficar meio gayzinho, leva um couro, ele muda o comportamento dele.”
+
+###### [Participação Popular, TV Câmara](https://www.youtube.com/watch?v=JZtaYvzzeTQ)
+<div style="text-align: right; font-size: 10pt">17 de outubro de 2010</div>
 
 
