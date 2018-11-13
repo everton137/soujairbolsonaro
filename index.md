@@ -64,7 +64,7 @@
 
 > “Alguém já viu um japonês pedindo esmola por aí? Porque é uma raça que tem vergonha na cara. Não é igual a essa raça que tá aí embaixo, ou como uma minoria que tá ruminando aqui do lado.”
 
-###### Palestra no clube Hebraica, Rio de Janeiro[1](https://www.youtube.com/watch?v=Cp1GdBx32CM) [2](https://youtu.be/ks0dgE8jpkw?t=23) [3](https://www.youtube.com/watch?v=LPj4KyLw8Wc)
+###### Palestra no clube Hebraica, Rio de Janeiro [1](https://www.youtube.com/watch?v=Cp1GdBx32CM) [2](https://youtu.be/ks0dgE8jpkw?t=23) [3](https://www.youtube.com/watch?v=LPj4KyLw8Wc)
 <div style="text-align: right; font-size: 10pt">3 de abril de 2017</div>
 
 > “Se o filho começa a ficar meio gayzinho, leva um couro, ele muda o comportamento dele.”
@@ -72,4 +72,25 @@
 ###### [Participação Popular, TV Câmara](https://www.youtube.com/watch?v=JZtaYvzzeTQ)
 <div style="text-align: right; font-size: 10pt">17 de outubro de 2010</div>
 
+> “Seria incapaz de amar um filho homossexual. Não vou dar uma de hipócrita aqui: prefiro que um filho meu morra num acidente do que apareça com um bigodudo por aí. Para mim ele vai ter morrido mesmo.”
+
+> “Se um casal homossexual vier morar do meu lado, isso vai desvalorizar a minha casa! Se eles andarem de mão dada e derem beijinho, desvaloriza.”
+
+###### [Revista Playboy](https://www.flickr.com/photos/carolinavianna/5812429445/in/photostream/)
+<div style="text-align: right; font-size: 10pt">7 de junho de 2011</div>
+
+> “Eu sou um liberal, se eu quero empregar na minha empresa você ganhando R$ 2 mil por mês e a Dona Maria ganhando R$ 1,5 mil, se a Dona Maria não quiser ganhar isso, que procure outro emprego! O patrão sou eu.”
+
+###### [Zero Hora](https://gauchazh.clicrbs.com.br/politica/eleicoes/noticia/2018/08/confira-a-entrevista-dada-por-bolsonaro-em-2014-citada-pelo-candidato-no-jornal-nacional-cjkfdf5op00ns01muzcwifyo8.html)
+<div style="text-align: right; font-size: 10pt">9 de dezembro de 2014</div>
+
+> “Orgulho [da história de vida do Hitler] não tenho, né? O que você tem que entender é o seguinte: guerra é guerra. Ele foi um grande estrategista.”
+
+###### [CQC, TV Bandeirantes](https://youtu.be/aSJsXlkVtq8?t=126) Resposta à: Você é do interior, tinha vaca, cabra, vocês iniciavam com os bichinhos? Você já comeu algum bichinho?
+<div style="text-align: right; font-size: 10pt">26 de março de 2012</div>
+
+> “Orgulho [da história de vida do Hitler] não tenho, né? O que você tem que entender é o seguinte: guerra é guerra. Ele foi um grande estrategista.”
+
+###### [CQC, TV Bandeirantes](https://youtu.be/aSJsXlkVtq8?t=401) Resposta à: O senhor já deu uns sopapos em mulher alguma vez?
+<div style="text-align: right; font-size: 10pt">26 de março de 2012</div>
 
