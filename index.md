@@ -64,7 +64,7 @@
 
 > “Alguém já viu um japonês pedindo esmola por aí? Porque é uma raça que tem vergonha na cara. Não é igual a essa raça que tá aí embaixo, ou como uma minoria que tá ruminando aqui do lado.”
 
-###### Palestra no clube Hebraica, Rio de Janeiro[1](https://www.youtube.com/watch?v=Cp1GdBx32CM)[2](https://youtu.be/ks0dgE8jpkw?t=23)[3](https://www.youtube.com/watch?v=LPj4KyLw8Wc)
+###### Palestra no clube Hebraica, Rio de Janeiro[1](https://www.youtube.com/watch?v=Cp1GdBx32CM) [2](https://youtu.be/ks0dgE8jpkw?t=23) [3](https://www.youtube.com/watch?v=LPj4KyLw8Wc)
 <div style="text-align: right; font-size: 10pt">3 de abril de 2017</div>
 
 > “Se o filho começa a ficar meio gayzinho, leva um couro, ele muda o comportamento dele.”
