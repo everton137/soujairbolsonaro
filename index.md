@@ -89,8 +89,28 @@
 ###### [CQC, TV Bandeirantes](https://youtu.be/aSJsXlkVtq8?t=126) Resposta à: Você é do interior, tinha vaca, cabra, vocês iniciavam com os bichinhos? Você já comeu algum bichinho?
 <div style="text-align: right; font-size: 10pt">26 de março de 2012</div>
 
-> “Orgulho [da história de vida do Hitler] não tenho, né? O que você tem que entender é o seguinte: guerra é guerra. Ele foi um grande estrategista.”
+> “Já. Era garoto na Eldorado, uma menina que forçou a barra pra cima de mim.” [sobre ter dado uns sopapos numa mulher]
 
 ###### [CQC, TV Bandeirantes](https://youtu.be/aSJsXlkVtq8?t=401) Resposta à: O senhor já deu uns sopapos em mulher alguma vez?
 <div style="text-align: right; font-size: 10pt">26 de março de 2012</div>
+
+> “Eu não empregaria [uma mulher] com o mesmo salário [de um homem]. Mas tem muita mulher que é competente.”
+
+###### [SuperPop, RedeTV!](https://youtu.be/rstRfaGJqyY?t=328)
+<div style="text-align: right; font-size: 10pt">15 de fevereiro de 2016</div>
+
+> “Como eu estava solteiro na época, esse dinheiro do auxílio moradia eu usava pra comer gente.”
+
+###### [TV Folha](https://www1.folha.uol.com.br/poder/2018/01/1949837-daqui-a-pouco-vao-querer-pegar-minha-mae-diz-bolsonaro.shtml)
+<div style="text-align: right; font-size: 10pt">11 de janeiro de 2018</div>
+
+> “O grande problema do Brasil é que o governo fica na jugular do empresário. […] O trabalhador vai ter que decidir: menos direito e emprego ou todos os direitos e desemprego.”
+
+###### [Evento em Deerfield Beach, EUA](https://youtu.be/3k4gHLoB_uQ?t=84)
+<div style="text-align: right; font-size: 10pt">8 de outubro de 2017</div>
+
+> “Eu vou dar carta branca para a polícia matar.”
+
+###### [Evento em Deerfield Beach, EUA](https://youtu.be/3k4gHLoB_uQ?t=84)
+<div style="text-align: right; font-size: 10pt">8 de outubro de 2017</div>
 
