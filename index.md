@@ -6,7 +6,7 @@
 > ia bater palma, porque não funciona. O Congresso hoje em dia não serve pra nada, xará, só vota o que o presidente quer. Se ele é
 > a pessoa que decide, que manda, que tripudia em cima do Congresso, dê logo o golpe, parte logo para a ditadura.”
 
-###### Resposta à: Se você fosse hoje o Presidente da República, você fecharia o Congresso Nacional? [Câmara Aberta](https://www.youtube.com/watch?v=-YP1F-7IDjU)
+###### [Câmara Aberta](https://www.youtube.com/watch?v=-YP1F-7IDjU) Resposta à: Se você fosse hoje o Presidente da República, você fecharia o Congresso Nacional? 
 <div style="text-align: right; font-size: 10pt">23 de maio de 1999</div>
 
 > “Pau-de-arara funciona. Eu sou favorável à tortura, tu sabe disso. E o povo é favorável também.”
