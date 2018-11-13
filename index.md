@@ -114,3 +114,28 @@
 ###### [Evento em Deerfield Beach, EUA](https://youtu.be/3k4gHLoB_uQ?t=84)
 <div style="text-align: right; font-size: 10pt">8 de outubro de 2017</div>
 
+> “Não vão encontrar sossego. E eu tenho imunidade pra falar que sou homofóbico, sim, com muito orgulho.”
+
+###### [Canal TWTV](https://youtu.be/4X0RG6DE114?t=111)
+<div style="text-align: right; font-size: 10pt">5 de junho de 2013</div>
+
+> “O cara lá que tem uma camisa minha comete lá um excesso, o que é que eu tenho a ver com isso?”
+
+###### [TV UOL](https://noticias.uol.com.br/politica/eleicoes/2018/noticias/2018/10/09/bolsonaro-lamenta-morte-e-agressoes-mas-diz-nao-controle-sobre-apoiadores.htm)
+<div style="text-align: right; font-size: 10pt">10 de outubro de 2018</div>
+
+> “Essa turma, se quiser ficar aqui, vai ter que se colocar sob a lei de todos nós. Ou vão pra fora, ou vão pra cadeia. Esses marginais vermelhos serão banidos de nossa pátria.”
+
+###### [Vídeo ao vivo em manifestação na Avenida Paulista](https://youtu.be/H9wxneOnIOI?t=77)
+<div style="text-align: right; font-size: 10pt">21 de outubro de 2018</div>
+
+> “Vocês não terão mais ONGs para saciar a fome de mortadela de vocês. Será uma limpeza nunca vista na história do Brasil.”
+
+###### [Vídeo ao vivo em manifestação na Avenida Paulista](https://youtu.be/H9wxneOnIOI?t=361)
+<div style="text-align: right; font-size: 10pt">21 de outubro de 2018</div>
+
+> “Vocês verão umas Forças Armadas altiva, que estará colaborando com o futuro do Brasil. Vocês, petralhada, verão uma polícia civil e militar com retaguarda jurídica pra fazer valer a lei no lombo de vocês.”
+
+###### [Vídeo ao vivo em manifestação na Avenida Paulista](https://youtu.be/H9wxneOnIOI?t=404)
+<div style="text-align: right; font-size: 10pt">21 de outubro de 2018</div>
+
