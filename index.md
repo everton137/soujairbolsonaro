@@ -30,3 +30,28 @@
 ###### [RedeTV](https://www.youtube.com/watch?v=yRV98Im5zRs)
 <div style="text-align: right; font-size: 10pt">11 de novembro de 2003</div>
 
+> “Vamos fuzilar a petralhada aqui do Acre… Já que eles gostam tanto da Venezuela, essa turma tem que ir para lá.”
+
+###### [Discurso no centro de Rio Branco, Acre](https://www.youtube.com/watch?v=eBoARZDGQZs)
+<div style="text-align: right; font-size: 10pt">1 de setembro de 2018</div>
+
+> “Maioria é uma coisa, minoria é outra… minoria tem que se calar, se curvar à maioria, acabou…”
+
+###### [Declaração para a mídia](https://www.youtube.com/watch?v=WUBe-tkPqaY)
+<div style="text-align: right; font-size: 10pt">11 de fevereiro de 2016</div>
+
+> “Violência se combate com violência.”
+
+###### [The Noite com Danilo Gentili, SBT](http://entretenimento.ne10.uol.com.br/televisao/noticia/2017/03/21/bolsonaro-diz-que-violencia-se-combate-com-violencia-no-the-noite-669263.php)
+<div style="text-align: right; font-size: 10pt">20 de março de 2017</div>
+
+> “Ô, Preta [Gil], eu não vou discutir promiscuidade com quem quer que seja. Eu não corro esse risco [do meu filho se 
+> apaixonar por uma negra] e meus filhos foram muito bem educados e não viveram em ambiente como lamentavelmente é o teu.”
+
+###### [CQC, TV Bandeirantes](https://youtu.be/9T5ZSAO1MVg?t=217)
+<div style="text-align: right; font-size: 10pt">28 de março de 2011</div>
+
+
+
+
+
