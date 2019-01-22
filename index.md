@@ -1,3 +1,14 @@
+> "Enquanto o Estado não tiver coragem de adotar a pena de morte, o crime de extermínio, no meu entender, será muito bem-vindo. Se não houver espaço para ele na BA, pode ir para o RJ. Se depender de mim, terão todo o meu apoio"
+
+###### [Câmara dos Deputados](http://www.camara.leg.br/internet/sitaqweb/TextoHTML.asp?etapa=5++++++++++++++++++++++++++++&nuSessao=138.1.52.O+++++++++++++++++++++++++++++++++&nuQuarto=13++++++++++++++++++++++++++++&nuOrador=1++++++++++++++++++++++++++++&nuInsercao=0++++++++++++++++++++++++++++&dtHorarioQuarto=14%3A54++++++++++++++++++++++++++++&sgFaseSessao=BC++++++++++++++++++++++++++++++++++++&Data=12%2F08%2F2003++++++++++++++++++++++++++++&txApelido=JAIR+BOLSONARO%2C+PTB-RJ++++++++++++++++++++++++++++&txFaseSessao=Breves+Comunica%C3%25A)
+<div style="text-align: right; font-size: 10pt">12 de agosto de 2003</div>
+
+> "Existe miliciano que não tem nada a ver com gatonet, com venda de gás. Como ele ganha R$ 850, que é quanto ganha um soldado da PM ou do bombeiro, e tem a sua própria arma, ele organiza a segurança na sua comunidade." 
+
+###### [Câmara dos Deputados](http://www.camara.leg.br/internet/sitaqweb/TextoHTML.asp?etapa=5&nuSessao=326.2.53.O%20%20%20%20%20&nuQuarto=20&nuOrador=1&nuInsercao=0&dtHorarioQuarto=15:48&sgFaseSessao=BC%20%20%20%20%20%20%20%20&Data=17/12/2008&txApelido=JAIR%20BOLSONARO)
+<div style="text-align: right; font-size: 10pt">17 de dezembro de 2008</div>
+
+
 > “Sou a favor sim de uma ditadura, de um regime de exceção.”
 
 ###### [Câmara dos Deputados](https://www1.folha.uol.com.br/poder/2018/06/nos-anos-90-bolsonaro-defendeu-novo-golpe-militar-e-guerra.shtml)
