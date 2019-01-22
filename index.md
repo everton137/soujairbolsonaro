@@ -8,6 +8,10 @@
 ###### [Câmara dos Deputados](http://www.camara.leg.br/internet/sitaqweb/TextoHTML.asp?etapa=5&nuSessao=326.2.53.O%20%20%20%20%20&nuQuarto=20&nuOrador=1&nuInsercao=0&dtHorarioQuarto=15:48&sgFaseSessao=BC%20%20%20%20%20%20%20%20&Data=17/12/2008&txApelido=JAIR%20BOLSONARO)
 <div style="text-align: right; font-size: 10pt">17 de dezembro de 2008</div>
 
+>"Não consigo entender como o MST, com toda a força e o dinheiro que tem, falando a nossa língua, não consegue terras. O índio, sem falar a nossa língua, fedorento — é o mínimo que posso falar —, na maioria das vezes, vem para cá, sem qualquer noção de educação, fazer lobby."
+
+###### [Comissão Externa sobre a Reserva Indígena Raposa Serra do Sol](http://www.camara.leg.br/internet/sitaqweb/textoHTML.asp?etapa=11&nuSessao=0352/04&nuQuarto=0&nuOrador=0&nuInsercao=0&dtHorarioQuarto=14:00&sgFaseSessao=&Data=14/4/2004&txApelido=RESERVA%20IND%C3%8DGENA%20RAPOSA%20SERRA%20DO%20SOL&txFaseSessao=Reuni%C3%A3o%20Deliberativa%20Ordin%C3%A1ria&txTipoSessao=&dtHoraQuarto=14:00&txEtapa=)
+<div style="text-align: right; font-size: 10pt">14 de abril de 2004</div>
 
 > “Sou a favor sim de uma ditadura, de um regime de exceção.”
 
